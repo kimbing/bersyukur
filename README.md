@@ -1,0 +1,2 @@
+# bersyukur
+Bekarya trus
